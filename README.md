@@ -9,7 +9,7 @@
                       suck air pollution
                       no time for no time for politician
                       awesome computer vison
-                      my osint neurals spit noise apart
+                      my osint neurals split noise apart
                       they doing well we going hard
 
 <!---
