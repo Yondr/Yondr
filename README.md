@@ -2,7 +2,15 @@
 - 👀 I’m interested in SURVIVE
 - 🌱 I’m currently learning FROM THIS SHITFUCK LIFE 
 - 💞️ I’m looking to collaborate on CYBER WAR
-- 📫 How to reach me INSIDE MY BRAIN LIKE IN PRISON wanna come closer hope u really have a reason man we need asap to do some. suck air pollution. no time for no time for politician. awesome computer vison. my osint neurals spit noise apart. you doing well i'm going hard.
+- 📫 How to reach me INSIDE MY BRAIN LIKE IN PRISON 
+                      wanna come closer 
+                      hope u really have a reason 
+                      man we need asap to do some
+                      suck air pollution
+                      no time for no time for politician
+                      awesome computer vison
+                      my osint neurals spit noise apart
+                      they doing well we going hard
 
 <!---
 Yondr/Yondr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
