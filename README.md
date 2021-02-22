@@ -2,9 +2,10 @@
 - 👀 I’m interested in SURVIVE
 - 🌱 I’m currently learning FROM THIS SHITFUCK LIFE 
 - 💞️ I’m looking to collaborate on CYBER WAR
-- 📫 How to reach me INSIDE MY BRAIN LIKE IN PRISON 
+- 📫 How to reach me INSIDE MY BRAIN 
+-                         LIKE IN PRISON 
 -                      Wanna come closer 
--                      Hope you're really have a reason 
+-                      Hope you're really have a reason
 -                      Hope u feel cage around
 -                      Suck air pollution 
 -                        Enjoying used crap
@@ -13,7 +14,7 @@
 -                      Sick computer vision shows where we at
 -                      I never asked for this
 -                      Never wanted act that dark
--                      My osint neurals split noise apart
+-                      My OSINT neurals split noise apart
 -                        They doing well 
 -                           We're going hard
 <!---
